@@ -1,0 +1,1 @@
+# Effects images stored here 
